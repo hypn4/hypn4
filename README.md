@@ -1,1 +1,1 @@
-![hyp](/wp/AndrewMcCarthy_Moonscapes_4000x2250.jpg)
+![hyp](/wp/AndrewMcCarthy_Moonscapes_9000x9000.jpg)
